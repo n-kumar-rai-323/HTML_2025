@@ -1,0 +1,1 @@
+Emmet can trace its origins to the Old German element ermen or irmen, earning it the meaning of "whole" or "universal." However, it is Emmet's roots in the Hebrew emmet, "truth," that inspires an image of an all-knowing being. If knowledge is power, Emmet is destined to be an influential force indeed.
